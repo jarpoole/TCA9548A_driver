@@ -1,0 +1,1 @@
+Retrieved from [Texas Instruments](https://www.ti.com/lit/gpn/tca9548a) on March 1st, 2021
